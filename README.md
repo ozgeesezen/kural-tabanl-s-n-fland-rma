@@ -1,0 +1,1 @@
+# kural-tabanl-s-n-fland-rma
